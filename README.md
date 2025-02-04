@@ -2,6 +2,7 @@
 
 🎓 Information Technology with a specialization in AI student at Ngee Ann Polytechnic  
 💻 Passionate about coding, AI, and building fun projects  
+Love looking at charts 
 
 ### 📫 Contact  
 
